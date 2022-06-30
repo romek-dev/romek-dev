@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **juszczyk.roman01@gmail.com**
 
-- ⚡ Fun fact **I was the coolest script kiddie at school 😎**
+- ⚡ Fun fact: **I always was the coolest script kiddie at school 😎**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
