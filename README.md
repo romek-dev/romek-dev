@@ -3,7 +3,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=romanjus&label=Profile%20views&color=0e75b6&style=flat" alt="romanjus" /> </p>
 
-- 📫 How to reach me **juszczyk.roman01@gmail.com**
+- 📫 How to reach me **romanjuszczyk@tuta.io**
 
 - ⚡ Fun fact: **I always was the coolest script kiddie at school 😎**
 
