@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **romanjuszczyk@tuta.io**
 
-- ⚡ Fun fact **I always was the coolest script kiddie at school 😎**
+- ⚡ Fun fact: **I was always the coolest script kiddie at school. 😎**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
